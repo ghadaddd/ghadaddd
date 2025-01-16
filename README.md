@@ -79,7 +79,7 @@
 ## 🌟 Fun Facts About Me:
 - I’m a **gymnast** 🤸‍♀️  
 - Interested in developing **eco-friendly  and innovative apps** 🌍  
-- I enjoy combining AI and ** data analytics** for real-world solutions!  
+- I enjoy combining AI and **data analytics for real-world solutions!  
 
 ---
 
